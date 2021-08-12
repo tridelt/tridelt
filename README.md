@@ -1,4 +1,4 @@
-## don't ask Elon for 15 minutes
+## don't ask Elon for 15
 # INSTEAD UPLOAD THAT SHIT TO GITHUB!!
 
 so we can see too : ) 
