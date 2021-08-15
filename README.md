@@ -1,7 +1,6 @@
 ## don't ask Elon for 15
-# INSTEAD UPLOAD THAT SHIT TO GITHUB!!
+# instead just upload it to github
 
-so we can see too : ) 
 
 <!--
 **tridelt/tridelt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
